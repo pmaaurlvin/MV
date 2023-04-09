@@ -1,1 +1,0 @@
-# MusicVoting.github.io
